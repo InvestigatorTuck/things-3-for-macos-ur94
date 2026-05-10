@@ -1,4 +1,4 @@
-
+Enhance Things 3 for macOS with exclusive Things 3 for macOS Integration | export to PDF + calendar integration, the #1 integration. Includes export to PDF and calendar
 
 
 
